@@ -7,4 +7,4 @@ Jordan Serraf
 Alix Adrar Zangheri
 
 
-salut l'ékip
+Salut l'ékip
